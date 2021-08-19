@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @whitehatvan
 - 👀 I’m interested in cyber security.
 - 🌱 I’m protecting digital systems.
-- 💞️ I’m looking to collaborate on ethical hacking.
+- 💞️ I’m looking to collaborate in cyber space.
 - 📫 How to reach me; whitehatvan@pm.me
